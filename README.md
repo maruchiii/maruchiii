@@ -1,1 +1,1 @@
-<img align="right" src="https://count.getloli.com/get/@:maruchiii?theme=rule34">
+<img align="right" src="https://count.getloli.com/get/@marumaruchiii?theme=rule34">
